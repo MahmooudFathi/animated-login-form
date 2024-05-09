@@ -1,0 +1,1 @@
+I am Mahmoud, a fourth-year student at the Engineering College, specializing in front-end development. My passion lies in applying my knowledge and skills in designing and developing interactive websites and applications that enhance user experience. Presenting my projects in this email reflects my ability to achieve innovative design goals and deliver creative solutions.
